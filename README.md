@@ -3,7 +3,7 @@
 - 😄 Pronouns: he/him/his
 - Upcoming Web Developer and Digital Designer
 - Go Lakers! 💙💚
-- 
+  
 - 👀 Interests ...
 
 - Passionate with Video Games
