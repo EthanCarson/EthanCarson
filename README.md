@@ -11,6 +11,6 @@
 - Fan of D&D
 - Skilled Musician
 
-- 📫 Digitalec414@outlook.com
+- 📫 190144898+EthanCarson@users.noreply.github.com
 
 - Pleasure to meet you! :)
